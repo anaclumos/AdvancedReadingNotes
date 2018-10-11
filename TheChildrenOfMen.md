@@ -1,3 +1,7 @@
+```
+Compiled by Sunghyun Cho on October 11th, 2018.
+```
+
 # Part Omega
 
 ## Chapter 1
@@ -152,6 +156,12 @@ People are apathetic about the world and only interested in their benefits. And 
 
 Hilda Palmer-Smith is killed at Quietus (Barges). Theo acknowledges that some Quietus is forced, and decides to talk to Xan just as group later known as "Five Fishes" asked for.
 
+* Quietus
+* Compulsory semen testing
+* Sojourners
+* Penal isle
+* Election
+
 ## Chapter 10
 Theo's primary motivation is not the horror of Quietus. It is his indignation about how he was treated when he tried to intervene.
 
@@ -248,3 +258,190 @@ This passage, which is the last chapter of part Omega, is a turning point for Th
 # Part Alpha
 
 ## Chapter 20
+Theo felt weird after his trip. Theo calls Helena and asks if something happened. Helena talks about recent dissidents interrupting Quietus. He also has dreams about Five Fishes berating him. Theo finds Binsey, where him and Five Fishes have first met, abandoned.
+
+## Chapter 21
+
+## ① Mirium's background
+
+[Mirium]: I must have been one of the first to know. I was there at the end. Now I shall be there at the beginning.”
+
+##### Explanation
+Mirium talks that she worked at maternity department of the John Radcliffe.
+
+## ② Julian talks her pregnancy to Theo
+
+The chapel was dark but the group had lit eight night lights and had set them in a line in front of the altar. He wondered whether Rolf had secreted them here in advance of need or whether they had been left by other, less transient visitors. The wicks flickered briefly in the breeze from the open door, throwing shadows on the stone floor and on the pale, unpolished wood before settling into a gentle milky glow. At first he thought that the chapel was empty, and then he saw their three dark heads rising from one of the box pews. They moved out into the narrow aisle and stood regarding him. They were dressed as for a journey, Rolf in a Breton cap and large, grubby sheepskin jacket, Luke in a shabby black coat and muffler, Julian in a long cloak almost to the ground. In the dim light of the candles their faces were soft blurs. No one spoke. Then Luke turned, picked up one of the candles and held it high. Julian moved towards Theo and looked up into his face, smiling.
+
+She said: “It’s true, Theo, feel.”
+
+Under the cloak she was wearing a smock over baggy trousers. She took his right hand and guided it under the cotton of the smock, pulling the elastic of the trousers taut. The swollen belly felt tight and his first thought was of wonder that this huge convexity was so little visible beneath her clothes. At first her skin, stretched but silken smooth, felt cool under his resting hand, but imperceptibly the warmth passed from his skin to hers so that he could no longer feel any difference and it seemed to him that their flesh had become one. And then, with a sudden convulsive spasm, his hand was almost kicked away. She laughed, and the joyous peal rang out and filled the chapel.
+
+“Listen,” she said, “listen to her heartbeat.”
+
+It was easier for him to kneel, so he knelt, unselfconsciously, not thinking of it as a gesture of homage but knowing that it was right that he should be on his knees. He placed his right arm round her waist and pressed his ear against her stomach. He couldn’t hear the beating heart, but he could hear and feel the movements of the child, feel its life. He was swept by a tide of emotion which rose, buffeted and engulfed him in a turbulent surge of awe, excitement and terror, then receded, leaving him spent and weak. For a moment he knelt there, unable to move, half-supported by Julian’s body, letting the smell of her, the warmth of her, the very essence of her seep into him.
+
+##### What is the general topic of the passage as compared to that of the text as a whole?
+The birth of new life and sanctity of human are general themes in the book. The passage indicates the presence of baby is a huge hope for humanity, showing readers the how precious human lives are.
+##### Consider any details of setting or context (time period, location) 
+The location is a dark, quiet chapel which creates sacred atmosphere. When Theo touches Julian’s belly, the baby made responses and Julian’s laugh filled the dark, quiet chapel. This alludes that the sacred birth of a baby would be the hope for the dark, depressed society
+
+##### How does this passage fit in with the rest of the text?
+The passage is in chapter 21, Alpha part. In Alpha part, the ‘Five Fishes’ begins to flee away from Warden to protect the baby and Theo, who was apathetic to issues, turns to be active. Desperate struggle and sacrifice of the ‘Five Fishes’ come after this passage, and suggests the restoration of human dignity. 
+
+## Chapter 22
+Since SSP knows Theo's car number, Theo goes to Jasper Palmer-Smith to borrow his car. Theo finds Jasper shot himself in the head. The house is extremely organized, suggesting Jasper made it easier for cleaing up his remainders. Miriam searches for things needed for the delivery, and Theo takes Jasper's gun in his house, with only one bullet loaded. Miriam warns Theo to tell no one about the gun, including Rolf and Julian.
+
+## Chapter 23
+
+## ① Rolf wants to be a leader
+
+[Rolf]: “We can’t have two leaders of this expedition.”
+
+##### Explanation
+Rolf talks to Theo that this group cannot have two leaders, suggesting he wants to be the leader. Theo does not admit that this group needs a leader, since there is only five (Mirium, Theo, Julian, Rolf, Luke) and they even don't have a solid plan. Theo then talks that Rolf can take the leader if  he does not require absolute obedience and if that would make Rolf feel better.
+
+## ② Rolf wants to be the next warden, using the baby
+
+“Not his power, mine. I’m not worried about her safety. The Council won’t harm her, or the baby. But it will be me, not Xan Lyppiatt, who presents my child to the world, and then we’ll see who’s Warden of England.”
+
+“So what are your plans?”
+
+“How do you mean?” Rolf’s voice was suspicious.
+
+“Well, you must have some idea what you plan to do if you manage to wrest power away from the Warden.”
+
+“It won’t be a question of wresting it away. The people will give it to me. They’ll have to if they want Britain repopulated.”
+
+“Oh, I see. The people will give it to you. Well, you’re probably right. What then?”
+
+“I shall appoint my own Council but without Xan Lyppiatt as a member. Lyppiatt’s had his share of power.”
+
+...
+
+“I don’t have to please Miriam.
+
+...
+
+“What I can do and he can’t is to father the new race.
+
+...
+
+“Why should he be a monster? Why shouldn’t he be normal, my child and hers?”
+
+##### Explanation
+Rolf plans himself to be the next Warden of England, and talks that he will not change the policies since they are all necessary. 
+
+## Chapter 24
+
+Rolf drives so fast, and even though Mirium asks to slow down for the baby getting shocked, the tire gets flat. They try to fix the car but fail, and decides to camp out until daylight.
+
+## Chapter 25
+Rolf and Theo talks about their religion while camping out. 
+
+## Chapter 26
+Theo's last diary. Theo admits that Rolf has some natural leadership ability.
+
+## Chapter 27
+But He’s supposed to be just. If He wants belief He’d better provide some evidence.”
+
+It was, he saw, a serious question, not a retaliation, and he gave it a serious and truthful answer. “I convinced myself I did when I married. I willed myself into the appropriate feelings without knowing what the appropriate feelings were. I endowed her with qualities she didn’t have and then despised her for not having them. Afterwards I might have learned to love her if I had thought more of her needs and less of my own.”
+
+Can you understand that, the need to hurt someone because you can no longer love?”
+
+##### Explanation
+Five Fishes and Theo gets attacked by group of Omegas, and Luke dies. Julian overreacts, and Rolf questions about the real father of the baby to Mirium. Mirium tells that Luke is the actual father. Being shocked, Rolf leaves the group.
+
+## Chapter 28
+
+At first his voice sounded strange to his own ears, but by the time he got to the psalm the words had taken over and he spoke quietly, with confidence, seeming to know them by heart. “ ‘Lord, thou hast been our refuge: from one generation to another. Before the mountains were brought forth, or ever the earth and the world were made: thou art God from everlasting, and world without end. Thou turnest man to destruction: again thou sayest, Come again, ye children of men. For a thousand years in thy sight are but as yesterday: seeing that is past as a watch in the night.’”
+
+##### Explanation
+Burial of Luke. Theo is not religious but feels that religion is hope itself, and something right.
+
+## Chapter 29
+We need transport, water and food. As soon as it’s dark I’ll walk into the nearest village and steal a car. We’re only a few miles from one. I saw its lights in the distance just before the Omegas got us.”
+
+He almost expected Miriam to ask how. Instead she said: “It’s worth a try. Don’t take more risks than you need.”
+
+Julian said: “Please, Theo, don’t take the gun.” He turned on her, biting back anger. “I shall take what I need to take and do what I have to do. How much longer can you go on without water? We can’t live on blackberries. We need food, drink, blankets, things for the birth. We need a car. If we can get into hiding before Rolf gets to the Council there’s still a hope. Or perhaps you’ve changed your mind. Perhaps you want to follow his example and give yourself up.”
+
+She shook her head but didn’t speak. He saw that there were tears in her eyes. He wanted to take her in his arms. Instead he stood distanced, and, putting his hand in his inner pocket, felt for the cold weight of the gun.
+
+##### Explanation
+Predicting that Rolf will deliver the news of pregnancy to the Warden, remaining people try to run away. Since they are near a village, Theo resolves to go steal a car once night falls. Julian begs him not to take the gun, but he angrily refuses her request. He sees that he has hurt her feelings but resists the urge to comfort her, choosing instead to stay at a distance with his gun.
+
+## Chapter 30
+Theo breaks into a house of old couple. They are watching *Neighbors*, soap opera from the 90s. Theo says he is sorry, and tie them up on their bed. Theo takes the car (MOA 694).
+
+## Chapter 31
+
+### ① Theo feels guilt about the old lady
+
+Miriam’s voice was firm, unnaturally loud, almost shouting in his ear. “You didn’t kill her! If she was going to die of shock it would have happened when you first showed her the gun. You don’t know why she died. It was natural causes, it must have been. It could have happened anyway. She was old and she had a weak heart. You told us. It wasn’t your fault, Theo, you didn’t mean it.”
+
+...
+
+He said: “The worst is that I enjoyed it. I actually enjoyed it!”
+
+Miriam was unloading the car, shouldering the blankets. “Enjoyed tying up that old man and his wife? Of course you didn’t enjoy it. You did what you had to do.”
+
+“Not the tying up. I didn’t mean that. But I enjoyed the excitement, the power, the knowledge that I could do it. It wasn’t all horrible. It was for them, but not for me.”
+
+...
+
+Theo, I can’t wish that she had never been conceived. I can’t think of her without joy.”
+
+...
+
+Get used to it. Why the hell should you escape guilt? It’s part of being human.
+
+##### Explanation
+Miriam tries to convince Theo that the old woman’s death is not his fault, but Theo, disgusted by himself, admits that he enjoyed the thrill of power he felt when he realized he was capable of overpowering the old couple.
+
+### ② Theo prays
+
+Oh God, he prayed, please let it still be there, let it still be there. It was the first time he had prayed in forty years, but the words were less a petition than a half-superstitious hope that somehow, by the strength of his need, he could will the shed into existence.
+
+##### Explanation
+Religion no more a serious belief in salvation, but rather an expression of hope and love.
+
+## Chapter 32
+
+### ① Irrational love
+
+The emotion he felt towards her was as mysterious as it was irrational. He needed to understand it, to define its nature, to analyse what he knew was beyond analysis. But some things now he did know, and perhaps they were all he needed to know. He wished only her good. He would put her good before his own. He could no longer separate himself from her. He would die for her life.
+
+##### Explanation
+Theo feels irrational love to Julian. Theo has changed.
+
+### ② Mirium and Theo willing to sacrifice themselves
+
+“But you’ll have to cross an open field. They’ll see you.” She said: “I have to go, Theo. There are things we need. I have to take that risk.” But she was being kind. It was water they needed most and their need was his fault. He said: “Let me go. You stay with her.” Miriam said: “She wants you with her. Now that the baby’s born, she needs you more than she needs me. I have to make sure the fundus is well contracted and check that the afterbirth is complete. When that’s done it will be safe to leave her. Try to get the baby to the breast. The sooner he begins sucking the better.”
+
+##### What is the general topic of the passage as compared to that of the text as a whole?
+This shows the Hope and Action caused by human relationships in general. In the book, this paragraph shows mainly about how Theo and others are changed after having true relationship with others (Theo is needed by somebody.), and the baby is depicted as a hope itself which is protected, and being protected by these human relationships. 
+##### Consider any details of setting or context
+This passage depicts the conversation between Miriam and Theo, willing to help each other and to sacrifice themselves. As the passage used a 3rd person view, in this way, it better shows the relationships and interactions between characters and inner thinking which better depicts how Theo is changed and how the hope is created.
+##### How does this passage fit in with the rest of the text?
+As the passage is in Chapter 32, these are the parts when Theo encounters new birth of a baby and his struggle to protect ‘the hope’ (= baby). During these dynamic changes, Theo got to know about being engaged in the relationship and show how it’s important and significant. And not only Theo, but also other characters get to know the value of true human relationship.
+
+## Chapter 33
+
+### ① Theo's love
+
+“Nothing and no one will separate us, not life nor death, nor principalities, nor powers, nor anything that is of the heavens nor anything that is of the earth.”
+
+##### Explanation
+Although Theo did not give up his reluctant behavior towards the world, he became more serious about relationships by loving Julian.
+
+### ② Theo finally takes the power
+
+Theo thought: It begins again, with jealousy, with treachery, with violence, with murder, with this ring on my finger. He looked down at the great sapphire in its glitter of diamonds, at the ruby cross, twisting the ring, aware of its weight. Placing it on his hand had been instinctive and yet deliberate, a gesture to assert authority and ensure protection. He had known that the Grenadiers would come armed. The sight of that shining symbol on his finger would at least make them pause, give him time to speak. Did he need to wear it now? He had all Xan’s power within his grasp, that and more. With Carl dying, the Council was leaderless. For a time at least he must take Xan’s place. There were evils to be remedied; but they must take their turn. He couldn’t do everything at once, there had to be priorities. Was that what Xan had found? And was this sudden intoxication of power what Xan had known every day of his life? The sense that everything was possible to him, that what he wanted would be done, that what he hated would be abolished, that the world could be fashioned according to his will. He drew the ring from his finger, then paused and pushed it back. There would be time later to decide whether, and for how long, he needed it.
+
+##### Explanation
+The desire of power and self-centered mind plays a key role throughout the book. Not only the dictator Xan but also other characters including Rolf and Theo want power. Xan restricts the whole society to reserve his power (Quietus, Compulsory sperm testing, no election, penal isle, Sojourners...), Rolf betrays the group for his success, and Theo finally takes the power of the society.
+
+```
+Compiled by Sunghyun Cho on October 11th, 2018.
+```
