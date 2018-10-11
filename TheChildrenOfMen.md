@@ -262,14 +262,14 @@ Theo felt weird after his trip. Theo calls Helena and asks if something happened
 
 ## Chapter 21
 
-## ① Mirium's background
+### ① Mirium's background
 
 [Mirium]: I must have been one of the first to know. I was there at the end. Now I shall be there at the beginning.”
 
 ##### Explanation
 Mirium talks that she worked at maternity department of the John Radcliffe.
 
-## ② Julian talks her pregnancy to Theo
+### ② Julian talks her pregnancy to Theo
 
 The chapel was dark but the group had lit eight night lights and had set them in a line in front of the altar. He wondered whether Rolf had secreted them here in advance of need or whether they had been left by other, less transient visitors. The wicks flickered briefly in the breeze from the open door, throwing shadows on the stone floor and on the pale, unpolished wood before settling into a gentle milky glow. At first he thought that the chapel was empty, and then he saw their three dark heads rising from one of the box pews. They moved out into the narrow aisle and stood regarding him. They were dressed as for a journey, Rolf in a Breton cap and large, grubby sheepskin jacket, Luke in a shabby black coat and muffler, Julian in a long cloak almost to the ground. In the dim light of the candles their faces were soft blurs. No one spoke. Then Luke turned, picked up one of the candles and held it high. Julian moved towards Theo and looked up into his face, smiling.
 
@@ -294,14 +294,14 @@ Since SSP knows Theo's car number, Theo goes to Jasper Palmer-Smith to borrow hi
 
 ## Chapter 23
 
-## ① Rolf wants to be a leader
+### ① Rolf wants to be a leader
 
 [Rolf]: “We can’t have two leaders of this expedition.”
 
 ##### Explanation
 Rolf talks to Theo that this group cannot have two leaders, suggesting he wants to be the leader. Theo does not admit that this group needs a leader, since there is only five (Mirium, Theo, Julian, Rolf, Luke) and they even don't have a solid plan. Theo then talks that Rolf can take the leader if  he does not require absolute obedience and if that would make Rolf feel better.
 
-## ② Rolf wants to be the next warden, using the baby
+### ② Rolf wants to be the next warden, using the baby
 
 “Not his power, mine. I’m not worried about her safety. The Council won’t harm her, or the baby. But it will be me, not Xan Lyppiatt, who presents my child to the world, and then we’ll see who’s Warden of England.”
 
